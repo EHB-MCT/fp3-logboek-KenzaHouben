@@ -12,7 +12,7 @@
 
 ## 2) Wat heb ik nieuw geleerd of voor het eerst zelf gedaan?
 
-- Vandaag heb ik niks nieuws geleerd.
+- Ik heb geleerd om beter met mijn groep in Figma te werken. Als ik hulp nodig had of zij hadden mijn hulp nodig dan hielpen we elkaar.
 
 ## 3) Wat is mijn gevoel over vandaag?
 
